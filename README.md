@@ -1,0 +1,1 @@
+# bijak-jawi-tahun1
